@@ -1,3 +1,1 @@
-Released by 
-
-https://gfxnull.net
+@copyright by hant
